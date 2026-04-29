@@ -1,4 +1,4 @@
-
+instant Scripts for anime card clash is the best anime card clash Script, featuring auto-heal and aimbot. Safe and powerful for all your needs.
 
 
 
